@@ -1,1 +1,1 @@
-# Ecomate A Solution For Sustainability
+# Ecomate: Sustainable Waste Management Solution
